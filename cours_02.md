@@ -3,7 +3,9 @@
 
 ### Lien 1 
 https://www.cuptoast.shop/
+
 Expliquer pourquoi vous avez choisi ce lien. En quoi pourrait-il contribuer à votre démarche artistique? Pourquoi vous intéresse-t-il? Écrire 2 à 3 lignes par lien. 
+
 J'ai choisi ce lien, car j'aime vraiment comment on peut intéragir avec les personnages et s'amuser avec pendant qu'on observe les articles.
 ### Lien 2 
 Expliquer pourquoi vous avez choisi ce lien.
