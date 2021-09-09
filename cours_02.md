@@ -17,7 +17,7 @@ https://www.vegascreativesoftware.com/ca/vegas-pro/
 
 Expliquer pourquoi vous avez choisi ce lien.  
 
-J'ai choisi ce lien, car j'aime beaucoup faire des montages vidéos pour divertir mes amis. Je trouve que c'est un bon logiciel pour faire des edits assez decents.
+J'ai choisi ce lien, car j'aime beaucoup faire des montages vidéos pour divertir mes amis. Je trouve que c'est un bon logiciel pour faire des edits assez decents et un bon passe temps. J'étais plus dessus pendant la quarantaine et je me suis beaucoup amuser.
 ### Lien 4 
 Expliquer pourquoi vous avez choisi ce lien. 
 
