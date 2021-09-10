@@ -12,7 +12,7 @@ https://www.systemax.jp/en/sai/
 
 Expliquer pourquoi vous avez choisi ce lien.  
 
-J'ai choisi ce lien, car c'est le logiciel que j'utilise depuis que j'ai commencer à faire des dessins digitaux. J'adore comment mes dessins ressort dans cet logiciel et les options de pinceaux qu'ils offrent sont vraiment utile.
+J'ai choisi ce lien, car c'est le logiciel que j'utilise depuis que j'avais commencé à faire des dessins numériques. J'adore comment mes dessins ressort dans cet logiciel et les options de pinceaux qu'ils offrent sont vraiment utile. J'utilise ainsi ce logiciel pour faire de l'animation 2D, qui est le métier que je vise et la raison pourquoi j'ai rejoin le programme TIM.
 ### Lien 3 
 https://www.vegascreativesoftware.com/ca/vegas-pro/
 
