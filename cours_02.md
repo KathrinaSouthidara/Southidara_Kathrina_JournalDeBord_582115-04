@@ -6,7 +6,7 @@ https://www.cuptoast.shop/
 
 Expliquer pourquoi vous avez choisi ce lien. En quoi pourrait-il contribuer à votre démarche artistique? Pourquoi vous intéresse-t-il? Écrire 2 à 3 lignes par lien. 
 
-J'ai choisi ce lien, car j'aime vraiment comment on peut intéragir avec les personnages et s'amuser avec pendant qu'on observe les articles. Je voudrais bien m'inspirer de cette idée et l'utiliser dans un de mes projets. J'adore dessiner et faire de l'animation 2D.
+J'ai choisi le lien CupToast Shop, car j'aime vraiment comment on peut intéragir avec les personnages et s'amuser avec pendant qu'on observe les articles. J'aime beaucoup faire de l'animation 2D et faire des dessins numériques. Je trouve que ceci est une bonne exemple de ce que je veux vraiment faire en multimédia. C'est intéressent et plaisant à regarder.
 ### Lien 2 
 https://www.systemax.jp/en/sai/
 
