@@ -10,8 +10,8 @@ L'animateur 2D/3D est chargé de créer des animations de personnages, décors, 
 ### Emploi 2 - Concepteur de jeux video
 Le concepteur est en charge de l'expérience de jeu. Il crée des fonctionnalités de jeu telles que des scénarios et des missions, guide les discussions entre les équipes de développement et présente de nouveaux concepts à la direction et aux techniciens. Les concepteurs de jeux vidéo travaillent la plupart du temps à l'intérieur, dans un environnement contrôlé. Ils travaillent presque toujours en équipe. Les qualités requises pour pratiquer ce métier, il faut avoir de l'imagination, être polyvalent, être ouvert d'esprit, avoir un esprit d'analyse et être à l'écoute. Un point qui m'intéresse dans ce métier c'est le fait que je peut divertir les gens. Un point qui m'intéresse le moins c'est de commencer le processus et faire de la programmation.
 
-### Emploi 3 - Programmation 3D
-4 à 5 lignes 
+### Emploi 3 - Programmation 
+Les développeurs en médias interactifs écrivent, modifient, intègrent et mettent à l'essai le code informatique pour des programs net, des didacticiels, des jeux pour ordinateurs, des films, des vidéos et d'autres médias interactifs. Ces personnes travaillent souvent dans un bureau rempli de technologie et ils sont toujours sur l'ordinateur. Les qualités requises pour pratiquer ce métier, la logique, l'analyse, la patience, la curiosité/l'envie et la pertinence. Un point qui m'intéresse dans ce métier c'est la satisfaction et le résultat du jeu final. Le point qui m'intéresse le moins dans ce métier c'est d'apprendre à faire du coding.
 
 ### Emploi 4 - Designer graphique
 4 à 5 lignes
