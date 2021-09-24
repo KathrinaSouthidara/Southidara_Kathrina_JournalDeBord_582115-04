@@ -18,7 +18,7 @@ L'entreprise que je m'identifie avec c'est Cartoon Network. La raison pour cela 
 L'artiste que je trouve m'identifie le plus c'est Ben Bocquelet. Il est le créateur du fameux émission << Amazing World Of Gumball >>, notre style de dessin est un peu similaire et je trouve que ces créations sont très inspirant et unique. J'adore beaucoup l'animation et l'histoire qui met pour les épisodes, il me donne envie de créer mon propre émission.
 
 ### Dans 5 ans
-Dans 5 ans, je me vois en université et concentrer beaucoup sur l'amélioration de mes dessins ainsi que travailler plus sur l'animation. Un pas à la fois, j'ai réussi à bien maitriser à dessiner. Maintenant je dois juste m'améliorer et apprendre plus sur cette matière.
+Dans 5 ans, je me vois en université et concentrer beaucoup sur l'amélioration de mes dessins ainsi que travailler plus sur l'animation. Un pas à la fois, j'ai réussi à bien maitriser à dessiner. Maintenant je dois juste m'améliorer et apprendre plus sur cette matière. J'espère aussi d'avoir une bonne carrière dans le futur et faire assez d'argent pour vivre.
 
 ### Projets
 Le projet que je souhaites faire le plus c'est l'animation 2D/3D. J'ai beaucoup d'imagination en tête et faire pouvoir rendre mes dessins en vie me donne beaucoup de motivation et d'excitation pour l'accomplir. Je pourrais ainsi savoir si j'aimerais faire ce métier pour le reste de ma vie.
