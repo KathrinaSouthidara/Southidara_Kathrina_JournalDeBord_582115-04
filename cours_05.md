@@ -16,4 +16,4 @@ Nommer deux points à améliorer de votre présentation et expliquer comment vou
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi? 
 
-La présentation que j'ai préféré le plus est celui de Tran Mina, car je trouvais qu'elle expliquait vraiment bien ces intentions et le powerpoint était simple et accrochante.
+- La présentation que j'ai préféré le plus est celui de Tran Mina, car je trouvais qu'elle expliquait vraiment bien ces intentions et le powerpoint était simple et accrochante.
