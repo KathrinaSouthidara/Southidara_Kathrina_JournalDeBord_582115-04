@@ -3,9 +3,11 @@
 Durée: 8 à 10 minutes
 
 ### Résumer votre projet en une phrase
-Résumer le projet en une phrase concise.   
+
+Jeu multijoueur massive où les joueurs doivent conquérir le monde et survivre.
 
 ### Description du projet 
+
 Décrivez les grandes lignes de votre projet. 
 
 ### Schéma du projet ou scénarimage
